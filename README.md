@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Britt
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning
 - 💞️ I’m looking for help sometimes
 - 📫 How to reach me 
 - ⚡ Fun fact: my name rhymes with shit 💩
